@@ -1,14 +1,15 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is CAP
 ===========================================================================================================================
 
-OTAKU Director, Producer, Creator, Cameraman
+OTAKU Director, Producer, Creator, Cameraman, Golfer, Product Printer
 --------------------------------------------
 
-I've been producing videos, Graphic designing, Super Cameraman, Content creating for 11 Years! I also love CHEESE! & Golfing over 7m+ Views! Did over 1000s of Wedding / Graduation / Funeral Designs
+I've been producing videos, Graphic designing, Super Cameraman, Content creating for 15 Years! I also love CHEESE! Did over 10,000s of Wedding / Graduation / Funerals / Real Estate Bus. Cards / Lawyer Bus. Cards products of Photos, Tshirts, Invitations, Etc.
+200 videos create across Instagram x YT x TikTok x Twitter x plus many more generating over 8m+ views
 
 *   🌍  I'm based in Dallas Texas
 *   ✉️  You can contact me at [aryze.apprentice@gmail.com](mailto:aryze.apprentice@gmail.com)
-*   🧠  I'm learning Unity x UE5 x Blender / Psychology/ Sociology / Communications Improv
+*   🧠  I'm learning Unity x Blender / Psychology/ Sociology / Communications Improv
 *   🤝  I'm open to collaborating on Games/Trailers/Marketing
 *   ⚡  I Love Cheese! & Himeko Murata = Who made me who I am today!
 <p align="left">
